@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Anan1as
-- 👀 I’m interested in ... Die c:
-- 🌱 I’m currently learning ... How not die.
+- 👀 I’m interested in ... Kaeya.
+- 🌱 I’m currently learning ... simp, kaeya is a full time job... and I´m dedicated.
 - 💞️ I’m looking to collaborate on ... A game, hell yeah :p
 - 📫 How to reach me ... pls don't
 
