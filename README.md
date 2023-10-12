@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Anan1as
 - 👀 I’m interested in ... Writing.
-- 🌱 I’m currently learning ... How to survive to the adult world.
+- 🌱 I’m currently learning ... How to survive in the adult world.
 - 💞️ I’m looking to collaborate on ... Nothing, I know how to design in case you are interested haha
 - 📫 How to reach me ... pls don't
 
